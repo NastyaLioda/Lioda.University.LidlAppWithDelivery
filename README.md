@@ -1,0 +1,1 @@
+# Lioda.University.LidlAppWithDelivery
